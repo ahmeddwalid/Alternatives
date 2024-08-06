@@ -1,1 +1,1 @@
-# Alternatives
+# Alternatives to boycotted products
